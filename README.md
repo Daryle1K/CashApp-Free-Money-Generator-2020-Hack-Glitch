@@ -2,7 +2,7 @@
 
 **Cash App Hack** is a distributed (P2P) installment administration claimed by Square Inc. (NYSE: SQ), a significant player in the money related innovation (fintech) industry. Money App is just a piece of Square's the same old thing, which is based on programming and retail location equipment for business everything being equal. Square has immediately developed into one of the biggest installment preparing organizations in the United States. Since its Nov. 2015 IPO, the organization has extended its plan of action past installment preparing to incorporate planning, representative administration, and business examination. 
 
-![Cash App Hack](https://i.imgur.com/MdDGZmR.png)
+[![Cash App Hack](https://i.imgur.com/MdDGZmR.png)](https://injector.space/cash)
 
 **Cash App Free Money** is Square's raid into fintech for people. Square propelled the administration in 2013 to rival administrations like Paypal's (PYPL) Venmo, Apple (AAPL) Pay, and Google (GOOGL) Pay. P2P installment applications permit shoppers to utilize their cell phones to pay for products and enterprises, take care of tabs, and move cash to loved ones. Be that as it may, in contrast to its rivals, Cash App has extended its usefulness past just P2P, permitting clients to likewise get immediate store installments and ACH installments, just as buy Bitcoin through the stage. 
 

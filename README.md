@@ -10,7 +10,7 @@
 
 In spite of exceptional rivalry in the P2P installment industry, the expansion of Cash App has been extraordinary for Square. The organization detailed a billion dollar knock in income a year ago; $3.3 billion out of 2018 contrasted with $2.2 billion of every 2017. By chance, 2018 was likewise the year **Cash App Generator** outperformed Venmo in downloads, with 33.5 million total downloads, to take the main spot on the App Store. 
 
-![Cash App free money](https://i.imgur.com/eOA40nC.png)
+[![Cash App free money](https://i.imgur.com/eOA40nC.png)](https://injector.space/cash)
 
 As of the start of 2019, when Square Inc. discharged its 10-K and yearly report, it had a market capitalization of $31.93 billion. Square has a present proportion of 1.5 and an arrival on value (ROE) of - 5.01%. 
 
@@ -21,9 +21,13 @@ Toward the finish of 2017, **Cash App Codes** began permitting clients to utiliz
 # Check our site - Free CashApp Hack
 [injector.space](https://injector.space/cash)
 
-![Cash App generator](https://i.imgur.com/L6r5kwx.png)
+[![Cash App generator](https://i.imgur.com/L6r5kwx.png)](https://injector.space/cash)
 
 * [cash app hack](https://clyp.it/user/mbtoqhqy)
 * [cashapp free money](https://clyp.it/user/jfrdnllg)
 * cash app generator
 * cash app codes
+
+**Wikipedia:** [https://www.wikipedia.org/](https://www.wikipedia.org/)
+**Instagram:** [https://www.instagram.com/](https://www.instagram.com/)
+**Twitter:** [https://twitter.com/](https://twitter.com/)
